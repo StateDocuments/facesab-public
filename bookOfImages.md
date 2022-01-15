@@ -75,6 +75,7 @@
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image27261.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image27275.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image27474.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image27737.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image27765.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image27809.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image27854.jpg)
