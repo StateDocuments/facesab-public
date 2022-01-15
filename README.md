@@ -58,3 +58,4 @@
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image793.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image7975.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image895.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image9488.jpg)
