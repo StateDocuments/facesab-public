@@ -206,6 +206,7 @@
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image25855.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image25901.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image25920.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image25969.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image26102.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image26109.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/facesab-public/blob/main/image26161.jpg)
